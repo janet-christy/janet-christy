@@ -2,7 +2,7 @@
 - 👀 I’m interested in the ever-growing tech space
 - 🌱 I’m currently learning automation
 - 💞️ I’m looking to collaborate on learning new technologies
-- 📫 How to reach me @JanetChristy on Linkedin
+- 📫 How to reach me @JanetChristy on LinkedIn
 - ⚡ Fun fact: I'm an amateur artist and occasional writer
 
 <!---
